@@ -1,2 +1,2 @@
 # TataraKogasa.github.io
-人偶的Blog
+人形的Blog
